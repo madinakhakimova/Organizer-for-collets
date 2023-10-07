@@ -2,7 +2,7 @@
 
 **Исследование**
 
-С перво начала было ознакомления имеющих органайзеров в интернете.Результаты почти были похожи друг на друга.Многие были из пластмассы в виде ящика.
+С перво начала было ознакомления имеющих органайзеров в [интернете](https://www.google.com/search?q=organizer+for+collet&rlz=1C1GCEA_enUZ944UZ944&oq=organizer+for+collet&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIGCAEQRRg8MgYIAhBFGDwyBggDEEUYPNIBCTIxOTc3ajFqN6gCALACAA&sourceid=chrome&ie=UTF-8&bshm=rimc/1).Результаты почти были похожи друг на друга.Многие были из пластмассы в виде ящика.
 
 **Идея**
 
